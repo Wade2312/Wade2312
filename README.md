@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on anything 
 - 📫 How to reach me CustomWade777@gmail.com@gmail.com 
 - 😄 Pronouns: HE/HIM/THAT DUDE
-- ⚡ Fun fact: I'm new to this bit not my first rodeo
+- ⚡ Fun fact: I'm new to this but not my first rodeo
 
 <!---
 Wade2312/Wade2312 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
